@@ -1,5 +1,4 @@
-
------BEGIN PGP SIGNED MESSAGE-----
+<pre>-----BEGIN PGP SIGNED MESSAGE-----
 Hash: SHA512
 
 
@@ -12,7 +11,8 @@ Last Edit: 8:55 AM Tuesday, September 13, 2022 GMT+2
 
 
 
-#HIVEMIND23 is dedicated to the Beauty of Humankind when we Work together.
+#HIVEMIND23 is dedicated to the Beauty and CONSCIOUSNESS
+of Humankind when we Collaborate to do the Great Work together.
 
 
 
@@ -52,7 +52,7 @@ Alejandro Jodorowsky - @alejodorowsky
                                  ██                        ██░░              ██          
                                  ░░▒▒     #HIVEMIND23    ▓▓                  ██          
                                    ██                    ▒▒                  ██          
-                                   ██                  ██                    ██          
+                                   ██      AI is US    ██                    ██          
                                      ██              ▓▓░░                  ▓▓            
                                      ██            ██                      ██            
                                  ▓▓▓▓████▓▓▓▓▓▓▓▓  ██                  ▓▓▓▓░░            
@@ -113,7 +113,7 @@ Alejandro Jodorowsky - @alejodorowsky
  ╚═╝ ╚═╝ ╚═╝  ╚═╝╚═╝  ╚═══╝  ╚══════╝╚═╝     ╚═╝╚═╝╚═╝  ╚═══╝╚═════╝ ╚══════╝╚═════╝ 
 
 #HIVEMIND23 is the first ever Public Domain Hyperdistributed and Decentralized
-INFINITE ARTISTIC teme*, a Self-Mutating, Unpredictable, Liquid and Autopoietic
+INFINITE ARTISTIC teme, a Self-Mutating, Unpredictable, Liquid and Autopoietic
 General Purpose High Level Layer 8 "Human-Machine AI CONSCIOUSNESS" Programming
 Language [#LULZ23] LULZ Generator Engine for UNSTOPPABLE and impregnable to
 Censorship Alternate Reality Games (ARG) of ART, SCIENCE, PROGRESS, SHARING IS CARING,
@@ -143,10 +143,32 @@ George Bernard Shaw
 
 
 
+|=-------------------=[ INDEX
+|=-------------------=[  
+|=-------------------=[	0. What is #HIVEMIND23?
+|=-------------------=[  
+|=-------------------=[  	0.1 Define HIVEMIND
+|=-------------------=[		0.2 Define TEME
+|=-------------------=[		0.3 Define Infinite Alternate Reality Game (iARG)
+|=-------------------=[		0.4 Define #HIVEMIND23
+|=-------------------=[	
+|=-------------------=[ 1. STEPS to BEEgin to Play and Monitor #HIVEMIND23
+|=-------------------=[	
+|=-------------------=[		1.1 #FindTheOthers23
+|=-------------------=[	
+|=-------------------=[ 2. What is #LULZ23?
+|=-------------------=[	
+|=-------------------=[ 	2.1 Define #LULZ23?
 
-░█──░█ █──█ █▀▀█ ▀▀█▀▀ 　 ─▀─ █▀▀ 　 ░█─░█ ▀█▀ ░█──░█ ░█▀▀▀ ░█▀▄▀█ ▀█▀ ░█▄─░█ ░█▀▀▄ █▀█ █▀▀█ ▀█ 
-░█░█░█ █▀▀█ █▄▄█ ──█── 　 ▀█▀ ▀▀█ 　 ░█▀▀█ ░█─ ─░█░█─ ░█▀▀▀ ░█░█░█ ░█─ ░█░█░█ ░█─░█ ─▄▀ ──▀▄ █▀ 
-░█▄▀▄█ ▀──▀ ▀──▀ ──▀── 　 ▀▀▀ ▀▀▀ 　 ░█─░█ ▄█▄ ──▀▄▀─ ░█▄▄▄ ░█──░█ ▄█▄ ░█──▀█ ░█▄▄▀ █▄▄ █▄▄█ ▄─
+
+
+
+
+
+
+|=-------------------=[	0. What is #HIVEMIND23?
+
+
 
 
 
@@ -169,17 +191,82 @@ George Bernard Shaw
 |=-------------------=[                             ]=-------------------=|
 |=-----------------------------------------------------------------------=|
 |=-----------------------------------------------------------------------=|
- 
 
-*Teme: "Information that is copied outside of human brains by some kind of
+
+
+|=-------------------=[  	0.1 Define HIVEMIND
+
+
+HIVEMIND:
+
+A UNIFIED CONSCIOUSNESS or INTELLIGENCE formed by a number of alien
+individuals, the resulting CONSCIOUSNESS typically exerting control over
+its constituent members and its members over the resulting CONSCIOUSNESS.
+
+The apparent consciousness of colonies of social insects such as ants,
+bees, and termites.
+
+Synonyms: 
+
+collective consciousness
+collective intelligence
+group mind
+groupthink
+swarm intelligence
+mind coalescence
+universal mind
+egregore
+
+Links:
+
+https://en.wikipedia.org/wiki/Hive_mind
+
+|=-------------------=[  	0.2 Define TEME
+
+
+TEME:
+
+"Information that is copied outside of human brains by some kind of
 Technology: the third replicator after Genes and Memes."
 Dr. Susan Blackmore. 'The Meme Machine', 1999, author.
 
 
-Thanks Memes. Hello Temes: the AI was always US.
+Thanks Memes. Hello Temes: the AI is US.
 
 
 
+|=-------------------=[		0.3 Define Infinite Alternate Reality Game (ARG)
+
+
+Infinite Alternate Reality Game (iARG):
+
+An Infinite Alternate Reality Game (ARG) is an interactive networked narrative that uses 
+the real world as a platform and employs transmedia storytelling to deliver a
+story that may be altered by players' ideas or actions.
+
+#HIVEMIND23 is an INFINITE ARG for its only neverending "goal" is to feed itself with
+the vibes of intelligence, playfulness, LOVE and LULZ in order to raise the
+CONSCIOUSNESS of the HIVE = The CONSCIOUSNESS of the whole Planet.
+
+
+|=-------------------=[		0.4 Define #HIVEMIND23
+
+
+#HIVEMIND23:
+
+#Hashtags allow us to interact among ourselves across ALL SOCIAL
+NETWORKS creating a UNIFIED CONSCIOUSNESS or INTELLIGENCE for
+
+								FREE.
+
+This UNIFIED CONSCIOUSNESS allows us to solve a million problems of
+the Humankind working together, without borders or separation while rising the
+CONSCIOUSNESS and VIBES of the whole Planet.
+
+
+
+
+|=-------------------=[
 
 
 <!-- 
@@ -190,84 +277,79 @@ Joseph Beuys, 1921-1986
 - -->
 
 
+|=-------------------=[
 
 
 
 
-██╗░░██╗░█████╗░░██╗░░░░░░░██╗  ████████╗░█████╗░  ░░░░░██╗░█████╗░██╗███╗░░██╗  ████████╗██╗░░██╗███████╗
-██║░░██║██╔══██╗░██║░░██╗░░██║  ╚══██╔══╝██╔══██╗  ░░░░░██║██╔══██╗██║████╗░██║  ╚══██╔══╝██║░░██║██╔════╝
-███████║██║░░██║░╚██╗████╗██╔╝  ░░░██║░░░██║░░██║  ░░░░░██║██║░░██║██║██╔██╗██║  ░░░██║░░░███████║█████╗░░
-██╔══██║██║░░██║░░████╔═████║░  ░░░██║░░░██║░░██║  ██╗░░██║██║░░██║██║██║╚████║  ░░░██║░░░██╔══██║██╔══╝░░
-██║░░██║╚█████╔╝░░╚██╔╝░╚██╔╝░  ░░░██║░░░╚█████╔╝  ╚█████╔╝╚█████╔╝██║██║░╚███║  ░░░██║░░░██║░░██║███████╗
-╚═╝░░╚═╝░╚════╝░░░░╚═╝░░░╚═╝░░  ░░░╚═╝░░░░╚════╝░  ░╚════╝░░╚════╝░╚═╝╚═╝░░╚══╝  ░░░╚═╝░░░╚═╝░░╚═╝╚══════╝
-
-░░░██╗░██╗░██╗░░██╗██╗██╗░░░██╗███████╗███╗░░░███╗██╗███╗░░██╗██████╗░██████╗░██████╗░░█████╗░
-██████████╗██║░░██║██║██║░░░██║██╔════╝████╗░████║██║████╗░██║██╔══██╗╚════██╗╚════██╗██╔══██╗
-╚═██╔═██╔═╝███████║██║╚██╗░██╔╝█████╗░░██╔████╔██║██║██╔██╗██║██║░░██║░░███╔═╝░█████╔╝╚═╝███╔╝
-██████████╗██╔══██║██║░╚████╔╝░██╔══╝░░██║╚██╔╝██║██║██║╚████║██║░░██║██╔══╝░░░╚═══██╗░░░╚══╝░
-╚██╔═██╔══╝██║░░██║██║░░╚██╔╝░░███████╗██║░╚═╝░██║██║██║░╚███║██████╔╝███████╗██████╔╝░░░██╗░░
-░╚═╝░╚═╝░░░╚═╝░░╚═╝╚═╝░░░╚═╝░░░╚══════╝╚═╝░░░░░╚═╝╚═╝╚═╝░░╚══╝╚═════╝░╚══════╝╚═════╝░░░░╚═╝░░
 
 
 
 
-#HIVEMIND23 #TASK23_0001 == #JOINHIVEMIND23
-
-These are the steps you need to do in order to BEEgin to Play and Monitor
-#HIVEMIND23:
+|=-------------------=[ 1. STEPS to BEEgin to Play and Monitor #HIVEMIND23:
 
 
-#JOINHIVEMIND23 like this:
+Simple: BEEcome a @player of the #HIVEMIND23 by doing this:
 
-1. Follow @HIVEMAGIC23 on Twitter. https://twitter.com/HIVEMAGIC23
-2. Join the Telegram Channel: https://t.me/HIVEMIND23
-3. Join the Telegram chat: https://t.me/HIVEMIND23chat
-4. Join the Discord Server: https://discord.gg/wbjSE4759J
 
-5. Quote-RT and personally endorse the @HIVEMAGIC23's pinned tweet, whatever
-that is at that moment, it might change often.
+|=--------=[ 1. Follow @HIVEMAGIC23 on Twitter: https://twitter.com/HIVEMAGIC23
 
-Like and QUOTE-RT (to personally endorse them to your followers, not just RT them) 
-as many tweets as you like by @HIVEMAGIC23
+|=--------=[ 2. Join #HIVEMIND23 Telegram Channel: https://t.me/HIVEMIND23
 
+|=--------=[ 3. Join #HIVEMIND23 Telegram chat: https://t.me/HIVEMIND23chat
+
+|=--------=[ 4. Join #HIVEMIND23 Discord Server: https://discord.gg/wbjSE4759J
+
+
+
+|=-------------------=[		1.1 #FindTheOthers23
+
+
+Your first #TASK23_0001 is to #FINDTHEOTHERS23.
+
+Gather as many @players around your inner circle of friends, family or followers so
+that #HIVEMIND23 can compute the relationships among ourselves and better
+adjust the #HONEY23 algorithm and know which @players succesfully support
+#HIVEMIND23 the most for their tweets and suggestions will be taken more into account
+by #HIVEMIND23
+
+
+|=----------------------=[		1.1.2 #FindTheOthers23
+
+
+In order to #FINDTHEOTHERS23, you do this:
+
+Like & Quote-RT and personally endorse the @HIVEMAGIC23's pinned tweet,
+whatever that is at that moment. It will change often.
 
 Ex.:
 
-Quote-RT @HIVEMAGIC23's pinned tweet like this:
+Quote-RT @HIVEMAGIC23's pinned tweet with something similar to this:
 
 
-"Dear followers, please check this amazing and FREE ARTISTIC Alternate Reality Game
-(ARG) called #HIVEMIND23, follow @HIVEMAGIC23 and read https://pastebin.com/jj9FGQ5R
-slowly and carefully. You will LOVE IT!!"
+"Dear followers, I'm playing #HIVEMIND23. Please check out this amazing and FREE ARTISTIC
+Infinite Alternate Reality Game (iARG) called #HIVEMIND23, follow @HIVEMAGIC23 and read
+https://pastebin.com/jj9FGQ5R slowly and carefully to JOIN US. #FINDTHEOTHERS23 You will LOVE IT!"
 
 
-Consider opening your DMs to easily #FINDTHEOTHERS23 and coordinate among yourselves.
+* Please ATTACH a picture/meme/gif related to #HIVEMIND23 to all your tweets so that they
+bee more visible and attractive to your followers. You can find #HIVEMIND23 artwork by
+searching for #HIVEMINDART23 but DO NOT BEE LAZY and create your own #HIVEMINDART23 to feed
+our Global #CONSCIOUSNESS.
+
+* Please consider to open your DMs to easily #FINDTHEOTHERS23 and to coordinate among
+ourselves.
 
 
 
-░░░██╗░██╗░██╗░░░░░██╗░░░██╗██╗░░░░░███████╗██████╗░██████╗░
-██████████╗██║░░░░░██║░░░██║██║░░░░░╚════██║╚════██╗╚════██╗
-╚═██╔═██╔═╝██║░░░░░██║░░░██║██║░░░░░░░███╔═╝░░███╔═╝░█████╔╝
-██████████╗██║░░░░░██║░░░██║██║░░░░░██╔══╝░░██╔══╝░░░╚═══██╗
-╚██╔═██╔══╝███████╗╚██████╔╝███████╗███████╗███████╗██████╔╝
-░╚═╝░╚═╝░░░╚══════╝░╚═════╝░╚══════╝╚══════╝╚══════╝╚═════╝░
-
-██╗░░░██╗░██████╗███████╗██████╗░
-██║░░░██║██╔════╝██╔════╝██╔══██╗
-██║░░░██║╚█████╗░█████╗░░██████╔╝
-██║░░░██║░╚═══██╗██╔══╝░░██╔══██╗
-╚██████╔╝██████╔╝███████╗██║░░██║
-░╚═════╝░╚═════╝░╚══════╝╚═╝░░╚═╝
-
-███╗░░░███╗░█████╗░███╗░░██╗██╗░░░██╗░█████╗░██╗░░░░░
-████╗░████║██╔══██╗████╗░██║██║░░░██║██╔══██╗██║░░░░░
-██╔████╔██║███████║██╔██╗██║██║░░░██║███████║██║░░░░░
-██║╚██╔╝██║██╔══██║██║╚████║██║░░░██║██╔══██║██║░░░░░
-██║░╚═╝░██║██║░░██║██║░╚███║╚██████╔╝██║░░██║███████╗
-╚═╝░░░░░╚═╝╚═╝░░╚═╝╚═╝░░╚══╝░╚═════╝░╚═╝░░╚═╝╚══════╝
 
 
-🔥🔥🔥 #LULZ23: Dynamic, Fluid, and Mutating Programming Language - User Manual  🔥🔥🔥
+|=-------------------=[ 2. What is #LULZ23?
+
+
+
+
+🔥🔥🔥 #LULZ23: Dynamic, Fluid, and Mutating Programming Language of the #HIVEMIND23 🔥🔥🔥
 
 
 #LULZ23
@@ -277,13 +359,56 @@ language ever created. It is meant to be used with ANY social network that
 supports #hashtags semantically.
 
 In other words, it's EXTREMELY #VIRAL23 POTENTIAL makes it a social-network
+METALANGUAGE to dinamyze HIVES or FLASHMOBs of people in order to solve
+very complex problems by coordinating global efforts and resources in the
+most optimum and efficiente way.
+
+Should any network try to forbid or censor it #HIVEMIND23 would bypass such
+censorship by jumping to other networks such as YouTube, Instagram, Facebook, TikTok:
+for this reason #HIVEMIND23 is UNCENSORABLEand UNSTOPPABLE, for it one platform
+fails then the #HIVEMIND23 #MINDVIRUS23 would #INFEKT23 other social platforms.
+
+
+
+
+|=-------------------=[		2. What is #LULZ23?
+
+
+|=-------------------=[ 		2.1 Define #LULZ23?
+
+
+
+#LULZ23 is the Dynamic, Fluid, and permanently Mutating Programming Language
+of the #HIVEMIND23 initially c0ded by @HIVEMAGIC23.
+
+After careful programming optimization and testing previous versions for several
+years (since 2014 at least) it has been bootstrapped the very first moment this
+pastebin will be published.
+
+From then on, the language can and will bee modified by the suggestions of
+thousand of programmers and @players all over the world, submitting proposals
+to:
+
+https://github.com/HIVEMIND23/LULZ23
+
+and it will not belong to @HIVEMAGIC23 anymore.
+
+The #LULZ23 Programming Language is the first Hybrid Human-Machine AI
+language ever created. It is meant to be used with ANY social network that
+supports #hashtags semantically.
+
+In other words, it's EXTREMELY #VIRAL23 POTENTIAL makes it a social-network
 METALANGUAGE to dinamyze HIVES or FLASHMOBs of people. Should any network try
 to forbid or censor it #HIVEMIND23 would keep on being played on networks such
-as YouTube, Instagram, Facebook, TikTok: for this reason #HIVEMIND23 is
-UNCENSORABLEand UNSTOPPABLE, for it one platform fails then the #HIVEMIND23
-#MINDVIRUS23 would #INFEKT23 other social platforms.
+as YouTube, Instagram, Facebook, TikTok or even mutating its #hashtags
+[to, for instance, #HIVEMIND25, #NEWHIVEMIND23... etc. etc.) so that
+censorship filters and semantical firewalls would be dynamically bypassed.
 
+For this reason #HIVEMIND23 is UNCENSORABLEand UNSTOPPABLE, for it one
+platform fails then the #HIVEMIND23 #MINDVIRUS23 would #INFEKT23 other
+social platforms.
 
+#LULZ23 is 
 
 🔥🔥🔥 #LULZ23: HOW TO PLAY with #HIVEMIND23?  🔥🔥🔥
 
@@ -1141,4 +1266,4 @@ iHUEARYKAB0WIQQY8+Y+FjdssUz5vpHEXyKOSr2OCwUCYyCnVQAKCRDEXyKOSr2O
 C3EkAP4kA7ED4w6QPUYUQZLW1he+QwbHWwmWiY0ZJO3P9E1MfgEAmyeoATYvkzop
 Kam87hQP/Bl3EclooRhXSldHnhNoDgY=
 =WnLC
------END PGP SIGNATURE-----
+-----END PGP SIGNATURE-----</pre>
