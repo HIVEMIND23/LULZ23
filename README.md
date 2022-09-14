@@ -4,7 +4,7 @@ Hash: SHA512
 
 
 
-Last Edit: 8:55 AM Tuesday, September 13, 2022 GMT+2
+Last Edit: 11:17 AM Wednesday, September 14, 2022 GMT+2
 
 
 
@@ -19,13 +19,27 @@ of Humankind when we Collaborate to do the Great Work together.
 
 
 <!-- 
-"True ART is always transgressive, it moves History forward.
+"TRUE ART is always transgressive, it moves History forward.
 ART is always transgressive because it proposes something NEW.
 If it is not transgressive it is not ART.
 People think and have a revelation, 'this can be done like this',
 and they put it into practice."
 Alejandro Jodorowsky - @alejodorowsky
-- -->
+- - -->
+
+
+
+
+
+
+
+Here's to the Crazy Ones
+https://www.youtube.com/watch?v=5sMBhDv4sik
+
+
+
+
+
 
 
 
@@ -136,10 +150,14 @@ To change something, build a new model that makes the existing model obsolete.�
 Buckminster Fuller
 
 
+
 "The reasonable man adapts himself to the world;
 the unreasonable one persists in trying to adapt the world to himself.
 Therefore all progress depends on the unreasonable man."
 George Bernard Shaw
+
+
+
 
 
 
@@ -156,14 +174,17 @@ George Bernard Shaw
 |=-------------------=[	
 |=-------------------=[		1.1 #FindTheOthers23
 |=-------------------=[	
-|=-------------------=[ 2. What is #LULZ23?
+|=-------------------=[ 2. #LULZ23
 |=-------------------=[	
 |=-------------------=[ 	2.1 Define #LULZ23?
-
-
-
-
-
+|=-------------------=[	
+|=-------------------=[	3. HOW TO PLAY and interact with #HIVEMIND23 via #LULZ23?
+|=-------------------=[	
+=--------------------=[		3.1 EXAMPLES of #LULZ23 COMMANDS
+|=-------------------=[	
+=--------------------=[			3.2 ETIQUETTE
+|=-------------------=[	
+|=-------------------=[	4. SELF-REGULATED #HONEY23
 
 
 |=-------------------=[	0. What is #HIVEMIND23?
@@ -274,7 +295,7 @@ CONSCIOUSNESS and VIBES of the whole Planet.
 Only art is capable of dismantling the repressive social system to build
 a SOCIAL ORGANISM AS A WORK OF ART."
 Joseph Beuys, 1921-1986
-- -->
+- - -->
 
 
 |=-------------------=[
@@ -371,7 +392,7 @@ fails then the #HIVEMIND23 #MINDVIRUS23 would #INFEKT23 other social platforms.
 
 
 
-|=-------------------=[		2. What is #LULZ23?
+|=-------------------=[		2. #LULZ23
 
 
 |=-------------------=[ 		2.1 Define #LULZ23?
@@ -382,10 +403,10 @@ fails then the #HIVEMIND23 #MINDVIRUS23 would #INFEKT23 other social platforms.
 of the #HIVEMIND23 initially c0ded by @HIVEMAGIC23.
 
 After careful programming optimization and testing previous versions for several
-years (since 2014 at least) it has been bootstrapped the very first moment this
+years (since 2014 at least) it will be bootstrapped the very first moment this
 pastebin will be published.
 
-From then on, the language can and will bee modified by the suggestions of
+- From then on, the language can and will bee modified by the suggestions of
 thousand of programmers and @players all over the world, submitting proposals
 to:
 
@@ -393,52 +414,68 @@ https://github.com/HIVEMIND23/LULZ23
 
 and it will not belong to @HIVEMAGIC23 anymore.
 
+
+
+|=-------------------=[ 		2.2 What is #LULZ23?
+
+
 The #LULZ23 Programming Language is the first Hybrid Human-Machine AI
 language ever created. It is meant to be used with ANY social network that
 supports #hashtags semantically.
 
-In other words, it's EXTREMELY #VIRAL23 POTENTIAL makes it a social-network
+In other words, it's EXTREMELY #VIRAL23 NATURE makes it a social-network
 METALANGUAGE to dinamyze HIVES or FLASHMOBs of people. Should any network try
 to forbid or censor it #HIVEMIND23 would keep on being played on networks such
 as YouTube, Instagram, Facebook, TikTok or even mutating its #hashtags
-[to, for instance, #HIVEMIND25, #NEWHIVEMIND23... etc. etc.) so that
-censorship filters and semantical firewalls would be dynamically bypassed.
+[to, for instance, #HIVEMIND25, #NEWHIVEMIND23, #JAIFMAIND23... etc. etc.)
+so that censorship filters and semantical firewalls would be dynamically bypassed.
 
 For this reason #HIVEMIND23 is UNCENSORABLEand UNSTOPPABLE, for it one
 platform fails then the #HIVEMIND23 #MINDVIRUS23 would #INFEKT23 other
-social platforms.
+social platforms and @players would RE-ADAPT to the newest ambiental conditions.
 
-#LULZ23 is 
-
-🔥🔥🔥 #LULZ23: HOW TO PLAY with #HIVEMIND23?  🔥🔥🔥
+Smart adaptation.
 
 
-Instead of a complex and exhaustive Programmers Manual, we will learn #LULZ23
+
+|=-------------------=[		3. HOW TO PLAY and interact with #HIVEMIND23 via #LULZ23?
+
+
+
+Instead of writing complex and exhaustive Programmers Manual, we will learn #LULZ23
 by DOING.
 
 
-EXAMPLES of #LULZ23 COMMANDS:
+=-------------------=[			3.1 EXAMPLES of #LULZ23 COMMANDS
 
 
-ALL #LULZ23 COMMANDS start with the hashtag #HIVEMIND23 preferably OR #HM23
-so that they can be monitored by any #PLAYER23 anywhere in the World.
+ALL #LULZ23 COMMANDS start with the hashtag #HIVEMIND23 preferably OR 
+shortened with #HM23 if there is no space left in the tweet.
+
+The #HIVEMIND23 activates the Hive so that the rest of the commands can be
+easyly searched for and MONITORED with Twitter's Search Engine.
+
+
+=-------------------=[			3.2 ETIQUETTE
 
 
 Please always address #HIVEMIND23 with respect and fellow players with
 politeness for your commands will potentially be read by MANY MILLION people.
+
 Use "Dear #HIVEMIND23," when possible when you start your command and finish
-it with "Thank you." If you lack the space in characters it's alright if you
-omit the "Dear/Thank you" words or if you use hashtag #HM23 instead of
-#HIVEMIND23.
+it with a "Thank you." or similar signals of courtesy and appreciation.
+
+If you lack the space in characters it's alright if you omit the
+"Dear/Thank you" words or if you use hashtag #HM23 instead of #HIVEMIND23.
 
 Please try to always publish a #HIVEMIND23 meme, Logo, GIF... in your
-tweets to give them more visibility and make them more attractive.
+tweets to give them more visibility and make them more attractive, and you
+will get more likes/RT, which will account towards your ranking within the
+Hive.
 
-
-If you don't have #HIVEMIND23 related
-artwork it is easy! You can find them by searching for #HIVEMIND23_ART
-It is advised that you create your own #HIVEMIND23_ART don't BEE lazy!!!
-
+If you don't have #HIVEMIND23 related ORIGINAL artwork it is easy! You can find
+pics/gifs/memes... by searching for #HIVEMIND23_ART It is advised that you
+create your own ORIGINAL #HIVEMIND23_ART don't BEE lazy!!!
 
 If you want, you can addres your message to some influencers or friends you
 have with many followers at the END of your COMMAND, inside a COMMENT.
@@ -464,21 +501,32 @@ probably refers to a previous #TASK23 towards programming a
 certain tool for the #HIVEMIND23.
 
 
+=-------------------=[			3.4 CREATIONS & #ARTWORK23
+
+
+If you are going to CREATE any kind of #ARTWORK23 for the #HIVEMIND23 please
+DO take into consideration that WE, the #HIVEMIND23Team, have been putting
+an uncountable amount of 12 days hours, giving the absolute 108% of ourselves
+into this Work of Art that is #HIVEMIND23 without any pay. Doing it for
+the #LULZ23 & #LOVE23, ofc!
+
+If you are going to CREATE #ARTWORK23 all we ask you is that you give your 108%
+to it and that you put ALL OF YOUR PASSION and SOUL into it. This way you will
+shock and enlighten the other @players with your Great Work and we will ALL
+benefit from SHARING quality #ARTWORK23.
+
+The more the #LULZ23 & #LOVE23, the most FUN and #HONEY23 we'll enjoy!
 
 
 
-████████████████████████████████████████████████▀██████████████████████████████████████
-█─▄▄▄▄█▄─▄▄─█▄─▄███▄─▄▄─█▀▀▀▀▀██▄─▄▄▀█▄─▄▄─█─▄▄▄▄█▄─██─▄█▄─▄████▀▄─██─▄─▄─█▄─▄▄─█▄─▄▄▀█
-█▄▄▄▄─██─▄█▀██─██▀██─▄███████████─▄─▄██─▄█▀█─██▄─██─██─███─██▀██─▀─████─████─▄█▀██─██─█
-▀▄▄▄▄▄▀▄▄▄▄▄▀▄▄▄▄▄▀▄▄▄▀▀▀▀▀▀▀▀▀▀▄▄▀▄▄▀▄▄▄▄▄▀▄▄▄▄▄▀▀▄▄▄▄▀▀▄▄▄▄▄▀▄▄▀▄▄▀▀▄▄▄▀▀▄▄▄▄▄▀▄▄▄▄▀▀
-██████████████████████████████████
-█─█─█─▄▄─█▄─▀█▄─▄█▄─▄▄─█▄─█─▄█████
-█─▄─█─██─██─█▄▀─███─▄█▀██▄─▄██░░██
-▀▄▀▄▀▄▄▄▄▀▄▄▄▀▀▄▄▀▄▄▄▄▄▀▀▄▄▄▀▀▄▄▀▀
 
 
-#HIVEMIND23 is a Hyper-Distributed and self-regulated TECHNOMERITOCRATIC
-System: the more you contribute to the wellbeeing and #LULZ23 of the
+
+|=-------------------=[		4. SELF-REGULATED #HONEY23
+
+
+#HIVEMIND23 is a Hyper-Distributed and self-regulated AI:
+the more you contribute to the wellbeeing and #LULZ23 of the
 #HIVEMIND23, the most recognized your work will bee and the biggest
 your influence to send commands to #HIVEMIND23 will bee for it will
 be more likely that other @player upvote your tweets.
@@ -709,17 +757,17 @@ Trans-Meta-Hyper-Simulation too.
 
 For things such as:
 
-- - Humongous Servers able to support hundreds of million #PLAYER23. Yes. Millions.
+- - - Humongous Servers able to support hundreds of million #PLAYER23. Yes. Millions.
 
-- - Hire the only the ABSOLUTE BEST people in their fields of expertise in order
+- - - Hire the only the ABSOLUTE BEST people in their fields of expertise in order
 to: c0de a mobile app, c0de a Scoreboard for hivemind23.com, hire the best
 data visualizers in the world to help us spot the best #players23, to give
 #REWARD23 for particular #PLAYER23 after successfully completing a #TASK23.
 
-- - To purchase loads of adwords, banners, online and in offline newspapers,
+- - - To purchase loads of adwords, banners, online and in offline newspapers,
 Billboards... in order to make #HIVEMIND23 go viral faster and faster...
 
-- - And more ideas yet to be announced...
+- - - And more ideas yet to be announced...
 
 
 We have arranged several methods to
@@ -1179,7 +1227,7 @@ Fingerprint: 18F3 E63E 1637 6CB1 4CF9  BE91 C45F 228E 4ABD 8E0B
 
 The #HIVEMIND23 Puppet Master is @HIVEMAGIC23 / HIVEMAGIC23@HIVEMIND23.COM
 
-- -----BEGIN PGP PUBLIC KEY BLOCK-----
+- - -----BEGIN PGP PUBLIC KEY BLOCK-----
 
 mDMEYyBH2RYJKwYBBAHaRw8BAQdAlEWaLtVJgEpcnNjm9IXqLuuLKQOrjfMLkp3M
 efoawOi0KUBISVZFTUFHSUMyMyA8SElWRU1BR0lDMjNASElWRU1JTkQyMy5DT00+
@@ -1192,7 +1240,7 @@ Sr2OCwUCYyBH2QIbDAUJA8JnAAAKCRDEXyKOSr2OCxyQAP9UCsmelRv0XmsH+Rj2
 JkqevaN2dFAYlL3Pn51QMTZuUgEA29eB0vSw03IpU8ZknyQ0t2ZcBzKutWyTqsGu
 JEFtkgs=
 =aYJk
-- -----END PGP PUBLIC KEY BLOCK-----
+- - -----END PGP PUBLIC KEY BLOCK-----
 
 
 
@@ -1243,7 +1291,7 @@ ANY quantity you feel like donating means A LOT to us and it will keep the #HIVE
 Thanks a LOT for your support, guys and BEEs!!! 
 
 
-- -->
+- - -->
 
 
 
@@ -1256,14 +1304,14 @@ ALL contents, artwork, software and ideas submitted and released by #HIVEMIND23,
 including these files, are released into the Public Domain for the greatest
 benefit of Humankind.
 http://en.wikipedia.org/wiki/Public_domain
-- -->
-
+- - -->
 
 
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQQY8+Y+FjdssUz5vpHEXyKOSr2OCwUCYyCnVQAKCRDEXyKOSr2O
-C3EkAP4kA7ED4w6QPUYUQZLW1he+QwbHWwmWiY0ZJO3P9E1MfgEAmyeoATYvkzop
-Kam87hQP/Bl3EclooRhXSldHnhNoDgY=
-=WnLC
------END PGP SIGNATURE-----</pre>
+iHUEARYKAB0WIQQY8+Y+FjdssUz5vpHEXyKOSr2OCwUCYyGcYwAKCRDEXyKOSr2O
+C+7pAQD+YRfWMMwSuqSe+qTC4leV2DszUuQfMmANzMsWCY32fQD/R29iZ7XSDH3J
+6DUAKU+ib3CmaLGG1huGHfhsUaTYrQY=
+=JgMw
+-----END PGP SIGNATURE-----
+</pre>
