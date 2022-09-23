@@ -1,31 +1,4 @@
-<pre>-----BEGIN PGP SIGNED MESSAGE-----
-Hash: SHA256
-
-
-
-
-Last Edit: 3:56 PM Wednesday, September 14, 2022 GMT+2
-
-
-
-
-
-
-#HIVEMIND23 is dedicated to the Beauty and CONSCIOUSNESS
-of Humankind when we Collaborate to do the Great Work together.
-
-
-
-
-
-<!-- 
-"TRUE ART is always transgressive, it moves History forward.
-ART is always transgressive because it proposes something NEW.
-If it is not transgressive it is not ART.
-People think and have a revelation, 'this can be done like this',
-and they put it into practice."
-Alejandro Jodorowsky - @alejodorowsky
-- - -->
+<pre>Last Edit: 12:10 PM Friday, September 23, 2022 GMT+2
 
 
 
@@ -33,12 +6,39 @@ Alejandro Jodorowsky - @alejodorowsky
 
 
 
-Here's to the Crazy Ones
-https://www.youtube.com/watch?v=5sMBhDv4sik
+
+
+SWARM INTELLIGENCE is defined as a collective
+behavior of a decentralized or self-organized system, natural or
+artificial. The concept is employed in work on Artificial
+Intelligence. This intelligence emerges from the collaboration,
+collective efforts, and competition of many individuals: ant
+colonies, bee colonies, bird flocking, hawks hunting, bacterial
+growth, fish schooling and microbial intelligence, and appears
+in consensus decision making.
 
 
 
 
+
+
+
+#HIVEMIND23: Swarm Intelligence over Social Networks
+
+
+Imagine...
+
+* Imagine we connect each other with #hashtags.
+* Imagine we connect those connections to a Distributed Ranking Engine.
+* Imagine we rank those conversations and experts on utility, intelligence,
+smartness, innovation, expertise...
+* Imagine a SWARM INTELLIGENCE emerges from our distributed interactions
+among us, without a center.
+* Imagine now we can arrange teams of experts all over the world without borders to self-assemble to solve the most complex problems, such as the cure of illnesses or the discovery of new Laws of Physics...
+
+For FREE. Forever.
+
+Imagine.
 
 
 
@@ -53,252 +53,43 @@ https://www.youtube.com/watch?v=5sMBhDv4sik
  
  
 
-                 ▒▒░░▓▓▒▒                                                                
-             ▓▓▓▓░░  ░░  ▓▓                                                              
-         ████              ██             @HIVEMAGIC23                                              
-         ████              ██                                                            
-                           ░░▒▒              at                                
-                             ██                                                          
-                             ░░▓▓      HIVEMIND23.com                ▓▓▓▓▓▓              
-                               ██                                ▓▓██      ██            
-                                 ██       presents             ██            ██          
-                                 ██                          ██              ██          
-                                 ██                        ██░░              ██          
-                                 ░░▒▒     #HIVEMIND23    ▓▓                  ██          
-                                   ██                    ▒▒                  ██          
-                                   ██      AI is US    ██                    ██          
-                                     ██              ▓▓░░                  ▓▓            
-                                     ██            ██                      ██            
-                                 ▓▓▓▓████▓▓▓▓▓▓▓▓  ██                  ▓▓▓▓░░            
-         ░░░░                ████░░░░▓▓████████░░████                  ████              
-         ░░░░              ██░░░░    ░░██████░░████░░██                                  
-                         ████          ░░██░░      ██░░██                                
-                         ██░░                        ░░██                                
-                       ▓▓██      ▓▓▓▓          ░░░░    ░░▓▓                              
-                       ██████  ██            ░░████    ░░██                              
- ░░░░░░░░              ████░░  ██░░▒▒  ░░  ░░    ██▓▓  ░░████                            
- ░░░░░░░░            ██░░░░░░░░██░░██  ░░  ░░▒▒▒▒  ██  ██████                            
- ░░░░░░░░            ██░░      ░░  ░░  ░░░░░░░░▓▓  ██  ░░████                            
-   ░░░░  ░░          ░░    ░░░░      ▓▓▓▓▓▓░░      ░░    ░░██              ░░            
-         ░░          ░░  ░░░░░░  ░░    ░░░░██░░░░░░░░░░  ░░██          ░░░░░░            
-         ░░          ░░░░░░░░                    ░░░░░░░░░░          ░░░░  ░░            
-   ░░    ░░            ░░            ░░░░            ░░░░░░░░        ░░░░  ░░            
-   ░░░░                ░░            ░░░░              ░░            ░░                  
-       ░░                ░░                            ░░            ░░                  
-         ░░              ░░        ██      ██      ░░░░            ░░░░                  
-           ░░              ░░░░      ██████      ░░░░                ░░  ░░░░            
-             ░░            ████░░░░          ░░░░░░              ░░░░                    
-                         ▓▓░░░░▓▓▓▓  ░░  ░░  ▓▓▓▓                                        
-                 ░░    ▓▓██░░░░░░░░▓▓▓▓██▓▓▓▓░░██▒▒        ░░                            
-                   ░░██████████░░░░░░░░░░░░░░░░▓▓██░░░░░░░░                              
-                     ██░░██████████░░░░░░░░░░▒▒██████                                    
-                     ██░░░░████████████████▓▓██  ░░██                                    
-                     ████░░░░░░░░██████████  ░░░░░░██                                    
-                       ██▓▓░░░░░░░░░░░░░░░░░░░░▓▓▓▓██                                    
-                 ▓▓▓▓▓▓██████████░░░░░░░░░░████████                                      
-               ▓▓  ▓▓▓▓████████████████████████████                                      
-             ▓▓  ▓▓░░░░░░████░░░░  ██████░░░░████                                        
-             ▓▓  ▓▓▒▒░░░░░░██▓▓▓▓▓▓░░░░░░░░▓▓██▓▓▒▒                                      
-           ▓▓  ▓▓▓▓▓▓▒▒▓▓      ████▓▓▓▓▓▓▓▓██░░▓▓  ▓▓                                    
-           ▓▓  ▓▓▓▓▓▓▓▓▓▓                  ░░░░░░▓▓  ▓▓                                  
-           ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓                ▓▓▓▓░░▓▓  ▓▓                                  
-         ▒▒▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓                ▓▓▓▓▒▒▓▓  ░░▒▒                                
-         ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓                ▓▓▓▓▓▓▓▓▓▓  ▓▓                                
-         ▓▓▓▓▓▓▓▓▒▒▓▓▓▓▓▓▓▓              ░░▓▓▓▓▓▓▓▓▓▓░░▓▓                                
-         ▓▓▓▓▓▓▓▓▒▒▓▓▓▓▓▓▒▒              ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓░░                              
-         ░░▒▒▒▒▓▓▓▓▓▓▓▓▓▓                ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓                              
-             ▓▓▓▓▓▓▓▓▓▓              ░░░░▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓                              
-                                           ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓                              
-                                           ▓▓▓▓▓▓▓▓▓▓▓▓▓▓                                
-                                             ▓▓▓▓▓▓▓▓▓▓                                  
-                                             ░░░░░░░░░░                                  
-
-
-
                                                                                 
 
 
 
- ██╗ ██╗ ██╗  ██╗██╗██╗   ██╗███████╗███╗   ███╗██╗███╗   ██╗██████╗ ██████╗ ██████╗ 
-████████╗██║  ██║██║██║   ██║██╔════╝████╗ ████║██║████╗  ██║██╔══██╗╚════██╗╚════██╗
-╚██╔═██╔╝███████║██║██║   ██║█████╗  ██╔████╔██║██║██╔██╗ ██║██║  ██║ █████╔╝ █████╔╝
-████████╗██╔══██║██║╚██╗ ██╔╝██╔══╝  ██║╚██╔╝██║██║██║╚██╗██║██║  ██║██╔═══╝  ╚═══██╗
-╚██╔═██╔╝██║  ██║██║ ╚████╔╝ ███████╗██║ ╚═╝ ██║██║██║ ╚████║██████╔╝███████╗██████╔╝
- ╚═╝ ╚═╝ ╚═╝  ╚═╝╚═╝  ╚═══╝  ╚══════╝╚═╝     ╚═╝╚═╝╚═╝  ╚═══╝╚═════╝ ╚══════╝╚═════╝ 
-
 #HIVEMIND23 is the first ever Public Domain Hyperdistributed and Decentralized
-INFINITE ARTISTIC teme, a Self-Mutating, Unpredictable, Liquid and Autopoietic
-General Purpose High Level Layer 8 "Human-Machine AI CONSCIOUSNESS" Programming
-Language [#LULZ23] LULZ Generator Engine for UNSTOPPABLE and impregnable to
-Censorship Alternate Reality Games (ARG) of ART, SCIENCE, PROGRESS, SHARING IS CARING,
-SELF-ORGANIZING WORLDWIDE CHILDREN & HUMANKIND WORKING TOGETHER TOWARDS ACHIEVING
-COMMON GOALS, LAW ABIDING WORKS OF ART, PEACE, FUN, LOVE and LULZ.                                                                                    
+INFINITE teme*, a Self-Mutating, Unpredictable, Liquid and Autopoietic General
+Purpose High Level Layer 8 "Human-Machine AI CONSCIOUSNESS" Programming Language [#LULZ23]. A LULZ Generator Engine for UNSTOPPABLE Alternate Reality Games (ARG) of ART, SCIENCE, PROGRESS, SHARING IS CARING, SELF-ORGANIZING WORLDWIDE CHILDREN & HUMANKIND WORKING TOGETHER TOWARDS ACHIEVING COMMON GOALS, LAW ABIDING WORKS OF ART, PEACE, FUN, LOVE and LULZ.                                                                                    
 
-#FindTheOthers23 and PLAY it!
+#FindTheOthers23
 
 
 
 
-“Time is a game played beautifully by children.”
-― Heraclitus, Fragments 
+|=-------------------=[ 🔥 How to PLAY? 🔥
+
+			
+			
+|=--------=[ 1. Quote-Tweet https://twitter.com/HIVEMAGIC23
+latest pinned tweet to announce that you are playing #HV23.
+
+|=--------=[ 2. Find The Other @players. Start to solve any #CHALLENGE23
+alone or in teams. (see section 7 below)
+
+|=--------=[ 3. Monitor hashtag #HIVEMIND23 for actions.
+		    	Use https://twitter.com/search-advanced
 
 
 
 
-"You never change things by fighting the existing reality.
-To change something, build a new model that makes the existing model obsolete.”
-Buckminster Fuller
 
+Optional:
 
+|=--------=[ 4. Create some #ARTWORK23 for the Game. (see section 2 below)
 
-"The reasonable man adapts himself to the world;
-the unreasonable one persists in trying to adapt the world to himself.
-Therefore all progress depends on the unreasonable man."
-George Bernard Shaw
+|=--------=[ 5. Join #HIVEMIND23 Discord Server: https://discord.gg/wbjSE4759J
 
-
-
-
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[ 	INDEX
-|=-------------------=[ 
-|=-------------------=[	
-|=-------------------=[	 
-|=-------------------=[		0. What is #HIVEMIND23?
-|=-------------------=[ 
-|=-------------------=[	 
-|=-------------------=[ 	 	0.1 Define HIVEMIND
-|=-------------------=[  
-|=-------------------=[			0.2 Define TEME
-|=-------------------=[  
-|=-------------------=[			0.3 Define Infinite Alternate Reality Game (iARG)
-|=-------------------=[  
-|=-------------------=[			0.4 Define #HIVEMIND23
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[  
-|=-------------------=[		 1. STEPS to BEEgin to Play and Monitor #HIVEMIND23
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[			1.1 #FindTheOthers23
-|=-------------------=[	
-|=-------------------=[ 
-|=-------------------=[	 
-|=-------------------=[		 2. #LULZ23
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[ 		2.1 Define #LULZ23?
-|=-------------------=[	
-|=-------------------=[ 
-|=-------------------=[	 
-|=-------------------=[		 3. HOW TO PLAY the Game and interact with #HIVEMIND23 via #LULZ23?
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[			3.1 EXAMPLES of #LULZ23 COMMANDS
-|=-------------------=[	
-|=-------------------=[					3.1.1 SPACE COMMAND
-|=-------------------=[	
-|=-------------------=[					3.1.2 TIME COMMAND
-|=-------------------=[	
-|=-------------------=[			3.2 ETIQUETTE
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[  
-|=-------------------=[		4. What is #HONEY23?
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[			4.1 Define #HONEY23
-|=-------------------=[	
-|=-------------------=[ 		4.2 Self-regulation of the #HIVEMIND23
-|=-------------------=[	
-|=-------------------=[ 
-|=-------------------=[	 
-|=-------------------=[		5. What is the role of @HIVEMAGIC23 in the Game?
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[  
-|=-------------------=[		6. How to fund the #HIVEMIND23?
-|=-------------------=[	
-|=-------------------=[			6.1 #CROWDFUND23
-|=-------------------=[	
-|=-------------------=[			6.2 Who will you donate to?
-|=-------------------=[			#HIVEMINDCommunity & #HIVEMINDTeam Wallets
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[		7. The first SIX CHALLENGES of the #HIVEMIND23
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[			7.1 #CHALLENGE23_0001 - Raise 10.000 euros to Hire Moebio
-|=-------------------=[	
-|=-------------------=[			7.2 #CHALLENGE23_0002 - Raise $10.000 to purchase
-|=-------------------=[				advertisements worldwide
-|=-------------------=[	
-|=-------------------=[			7.3 CHALLENGE23_0003 - Make #HIVEMIND23 Worldwide Trending Topic
-|=-------------------=[	
-|=-------------------=[			7.4 #CHALLENGE23_0004 - Upload 10.000 pieces of #HIVEMIND23_ART to Instagram
-|=-------------------=[	
-|=-------------------=[			7.5 #CHALLENGE23_0005: How to spot fellow #PLAYER23 of
-|=-------------------=[			#HIVEMIND23 in "Real Life" to join them
-|=-------------------=[	
-|=-------------------=[			7.6 #CHALLENGE_0006 - #CHALLENGE23_0005: Worldwide Dancing PARTY everywhere
-|=-------------------=[			in the World to Queen's song "It's a Kind of Magic"!!!
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[		8. The EXTREME VIRAL nature of #HIVEMIND23
-|=-------------------=[	
-|=-------------------=[			8.1 Inviting @influencers to play with us.
-|=-------------------=[	
-|=-------------------=[			8.2 #HIVEMIND23 please follow highly skilled @players
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[		9. How to propose new Commands and #ACTIONS23 to #HIVEMIND23
-|=-------------------=[	
-|=-------------------=[	
-|=-------------------=[		10. Other Creative uses for the #HIVEMIND23 Hybrid Human-Machine AI
-|=-------------------=[	
-|=-------------------=[			10.1 Puppet Finder
-|=-------------------=[	
-|=-------------------=[			10.2 Human Google
-|=-------------------=[	
-|=-------------------=[			10.3 Incentivate finding the solution to #CHALLENGES23 working alone
-								or coordinating in cells.
-|=-------------------=[	
-|=-------------------=[			10.4 Human Ranking Engine
-|=-------------------=[
-|=-------------------=[			10.5 Human h-index
-|=-------------------=[
-|=-------------------=[			10.6 World Wide Collaborative YouTube Orchestras								
-|=-------------------=[
-|=-------------------=[			10.7 Distributed Human Programming
-|=-------------------=[
-|=-------------------=[		11. Swarm behaviour: Massive Actions.
-|=-------------------=[
-|=-------------------=[			11.1 #VISITSITE23
-|=-------------------=[
-|=-------------------=[			11.2 #SWARM23
-|=-------------------=[
-|=-------------------=[			11.3 Join a #TELEGRAMchan
-|=-------------------=[
-|=-------------------=[			11.4 Organize cleaning marathons
-|=-------------------=[
-|=-------------------=[
-|=-------------------=[		12. 21+ years old Infinite Alternate Reality Game ONLY
-|=-------------------=[
-|=-------------------=[
-|=-------------------=[		13. Artistic Disclaimer
-|=-------------------=[
-|=-------------------=[
-|=-------------------=[		14. Safety, Security and Cryptography
-|=-------------------=[
-|=-------------------=[
-|=-------------------=[		15. Money, Money, Money
-|=-------------------=[
-|=-------------------=[
-|=-------------------=[		🅻🅸🅲🅴🅽🆂🅴
-|=-------------------=[
+|=--------=[ 6. Join #HIVEMIND23 Telegram Channel: https://t.me/HIVEMIND23
 
 
 
@@ -309,7 +100,13 @@ George Bernard Shaw
 
 
 
-|=-------------------=[	0. What is #HIVEMIND23?
+
+
+
+
+
+
+|=-------------------=[	0. What is HIVEMIND23?
 
 
 
@@ -326,140 +123,158 @@ George Bernard Shaw
 |=-------------------=[                             ]=-------------------=|
 |=-------------------=[  WELCOME TO                 ]=-------------------=|
 |=-------------------=[                             ]=-------------------=|
-|=-------------------=[   >:#HIVEMIND23 ARG         ]=-------------------=|
+|=-------------------=[   >:#HIVEMIND23		   ]=-------------------=|
 |=-------------------=[                             ]=-------------------=|
-|=-------------------=[   First 't was the Gene.    ]=-------------------=|
-|=-------------------=[   Then  't was the Meme.    ]=-------------------=|
-|=-------------------=[   Time to Tame the Teme.    ]=-------------------=|
+|=-------------------=[	   infinite Alternate    ]=-------------------=|
+|=-------------------=[	   Reality Game (iARG)   ]=-------------------=|    ]=-------------------=[					   ]=-------------------=|
+|=-------------------=[                             ]=-------------------=|
+|=-------------------=[ The measure of Intelligence ]=-------------------=|
+|=-------------------=[  is the ability to adapt.   ]=-------------------=|
+|=-------------------=[          Albert Einstein    ]=-------------------=|
 |=-------------------=[                             ]=-------------------=|
 |=-----------------------------------------------------------------------=|
 |=-----------------------------------------------------------------------=|
 
 
 
-|=-------------------=[  	0.1 Define HIVEMIND
+
+|=-------------------=[  	0.1 Define HIVEMIND & #HIVEMIND23
 
 
 HIVEMIND:
 
 A UNIFIED CONSCIOUSNESS or INTELLIGENCE formed by a number of alien
-individuals, the resulting CONSCIOUSNESS typically exerting control over
-its constituent members and its members over the resulting CONSCIOUSNESS.
+individuals.
 
 The apparent consciousness of colonies of social insects such as ants,
-bees, and termites.
+bees and termites.
+
+
+
+A set of four termite mounds in the Congo’s Miombo Woods, between 680 and 2200 years old.
+Swarm intelligence leads to highly organized labor, solid engineering and long-term thinking.
+
+
 
 Synonyms: 
 
-collective consciousness
-collective intelligence
-group mind
-groupthink
-swarm intelligence
-mind coalescence
-universal mind
-egregore
+	collective consciousness
+	collective intelligence
+	group mind
+	groupthink
+	swarm intelligence
+	mind coalescence
+	universal mind
+	egregore
 
-Links:
++info:
 
 https://en.wikipedia.org/wiki/Hive_mind
 
-|=-------------------=[  	0.2 Define TEME
 
 
-TEME:
-
-"Information that is copied outside of human brains by some kind of
-Technology: the third replicator after Genes and Memes."
-Dr. Susan Blackmore. 'The Meme Machine', 1999, author.
-
-
-Thanks Memes. Hello Temes: the AI is US.
-
-
-
-|=-------------------=[		0.3 Define Infinite Alternate Reality Game (ARG)
-
-
-Infinite Alternate Reality Game (iARG):
-
-An Infinite Alternate Reality Game (ARG) is an interactive networked narrative that uses 
-the real world as a platform and employs transmedia storytelling to deliver a
-story that may be altered by players' ideas or actions.
-
-#HIVEMIND23 is an INFINITE ARG for its only neverending "goal" is to feed itself with
-the vibes of intelligence, playfulness, LOVE and LULZ in order to raise the
-CONSCIOUSNESS of the HIVE = The CONSCIOUSNESS of the whole Planet.
-
-
-|=-------------------=[		0.4 Define #HIVEMIND23
 
 
 #HIVEMIND23:
 
-#Hashtags allow us to interact among ourselves across ALL SOCIAL
-NETWORKS creating a UNIFIED CONSCIOUSNESS or INTELLIGENCE for
+
+#Hashtags allow us to interact among ourselves across ALL SOCIAL NETWORKS
+creating a UNIFIED CONSCIOUSNESS or INTELLIGENCE for
 
 
-								FREE.
+FREE.
+
+#
 
 
-This UNIFIED CONSCIOUSNESS will allow us to solve a million problems of
-the Humankind working together, without borders or separation while rising the
+
+
+This UNIFIED CONSCIOUSNESS will allow us to solve a million complex problems.
+Humankind, working together, without borders or separation while rising the
 CONSCIOUSNESS and VIBES of the whole Planet.
 
 
 
 
-|=-------------------=[
+|=-------------------=[ 2. Start to Interact with #HIVEMIND23
 
 
-<!-- 
-"Art is now the only evolutionary-revolutionary power.
-Only art is capable of dismantling the repressive social system to build
-a SOCIAL ORGANISM AS A WORK OF ART."
-Joseph Beuys, 1921-1986
-- - -->
+Start all commands with “Dear #HIVEMIND23…” or just “#HIVEMIND23…”
+The 23 number at the end guarantees that the hashtag is free for the
+HIVE MIND to use. https://en.wikipedia.org/wiki/23_enigma
+Insert a “#hashtag23” for every action that you want others
+	to find when they monitor that hashtag.
 
-
-|=-------------------=[
-
-
-
-
+	i.e.: if you include the hashtag #HIVEMINDART23 it means that anybody
+	monitoring it will be able to find all the works of Art you have
+created for #HIVEMIND23, provided they also search for your @playername.
+	Use https://twitter.com/search-advanced
 
 
 
+	* Tweet your commands to #HIVEMIND23, like this:
+	
+	@player1:
+	
+	"Dear #HIVEMIND23 I have created this #HIVEMINDART23 [URL] for you.
+I hope you like it. Thank you."
+	
+	// Explanation: @player1 informs all players monitoring #HIVEMIND23 and
+#HIVEMINDART23 about the new Artwork (image, GIF, video...) that he has
+	created with the "HiveMind" theme: Hives, Mind, AI, Intelligence, Bees,
+	Swarm, whatever you want.
+	
+	Please embed the word "#HIVEMIND23" within your original Artwork.
+	
 
-|=-------------------=[ 1. STEPS to BEEgin to Play and Monitor #HIVEMIND23:
+	OR:
+
+	
+	"Dear #HIVEMIND23 I am skilled at designing 3D #HIVEMINDART23 Contact me if you are skilled at #VideoEditing23 or #Illustrator23 to collaborate. Thank you."
+	
+	// Explanation: @player1, an expert in 3D design is looking for @player2, @player3, @player4…, skilled at Video Editing or Illustrator so that they can work together on producing #HIVEMINDART23 for the game.
+
+	
+	OR:
+
+	
+	"Dear #HIVEMIND23 I have found the 3rd piece of the puzzle for #CHALLENGE23_0014 near London, UK. Contact me if you have found another one. Thank you."
+	
+
+	OR:
+
+	
+	"Dear #HIVEMIND23 I nominate @player39 for #Head23 of the #Mathematics23 Thinktank. Thank you."
+
+	// Explanation: @player1 nominates @player39 to be the Director/Coordinator/Head of the #Mathematics group for @player39 is considered to be an expert in Mathematics by @player1 so that @player39 then can appoint other @players to be part of his subgroup in order to solve complex mathematical problems for the #HIVEMIND23.
+
+	This is known as a “soft” and subjective ‘h-index’-alike value:
+https://en.wikipedia.org/wiki/H-index
+
+	
+	OR:
 
 
-Simple: BEEcome a @player of the #HIVEMIND23 by doing this:
+	BEE CREATIVE! Issue your own commands and see if other @players understand them so that they reply and act upon them. If in the beginning they don’t get what you mean, just keep on practicing the #LULZ23 language. It’s EASY!
+	
+
+	Finally:
 
 
-|=--------=[ 1. Follow @HIVEMAGIC23 on Twitter: https://twitter.com/HIVEMAGIC23
+Become used to MONITORING the hashtags you are interested in the most, such as
+#HIVEMIND23, #CHALLENGE23_0001, #HIVEMINDART23...and as many more as you like.
 
-|=--------=[ 2. Join #HIVEMIND23 Telegram Channel: https://t.me/HIVEMIND23
+This way you will be up to date with the latest interactions from other @players of the Game and/or will bee able to solve riddles, puzzles and challenges faster.
 
-|=--------=[ 3. Join #HIVEMIND23 Telegram chat: https://t.me/HIVEMIND23chat
+i.e., to monitor the latest #HIVEMIND23 interactions of all @players:
 
-|=--------=[ 4. Join #HIVEMIND23 Discord Server: https://discord.gg/wbjSE4759J
-
-
-
-|=-------------------=[		1.1 #FindTheOthers23
+https://twitter.com/search?q=%23HIVEMIND23&src=typed_query&f=live
 
 
-Your first #TASK23_0001 is to #FINDTHEOTHERS23.
-
-Gather as many @players around your inner circle of friends, family or followers so
-that #HIVEMIND23 can compute the relationships among ourselves and better
-adjust the #HONEY23 algorithm and know which @players succesfully support
-#HIVEMIND23 the most for their tweets and suggestions will be taken more into account
-by #HIVEMIND23
 
 
-|=----------------------=[		1.1.2 #FindTheOthers23
+
+|=----------------------=[		1.1.2 How to #FindTheOthers23
 
 
 In order to #FINDTHEOTHERS23, you do this:
@@ -467,23 +282,14 @@ In order to #FINDTHEOTHERS23, you do this:
 Like & Quote-RT and personally endorse the @HIVEMAGIC23's pinned tweet,
 whatever that is at that moment. It will change often.
 
-Ex.:
+i.e.:
 
 Quote-RT @HIVEMAGIC23's pinned tweet with something similar to this:
 
 
-"Dear followers, I'm playing #HIVEMIND23. Please check out this amazing and FREE ARTISTIC
-Infinite Alternate Reality Game (iARG) called #HIVEMIND23, follow @HIVEMAGIC23 and read
-https://pastebin.com/jj9FGQ5R slowly and carefully to JOIN US. #FINDTHEOTHERS23 You will LOVE IT!"
+"Dear followers, I'm playing #HIVEMIND23. Please check out this amazing and FREE ARTISTIC Infinite Alternate Reality Game (iARG), read http://docs.google.com/document/d/1k1cPbEwPEOBvJloxEX9VMyTgYNIU4VAZwpYLa8UKKOE slowly and carefully and JOIN US. #FINDTHEOTHERS23 "
 
-
-* Please ATTACH a picture/meme/gif related to #HIVEMIND23 to all your tweets so that they
-bee more visible and attractive to your followers. You can find #HIVEMIND23 artwork by
-searching for #HIVEMINDART23 but DO NOT BEE LAZY and create your own #HIVEMINDART23 to feed
-our Global #CONSCIOUSNESS.
-
-* Please consider to open your DMs to easily #FINDTHEOTHERS23 and to coordinate among
-ourselves.
+* Please consider opening your DMs to easily #FINDTHEOTHERS23 and to coordinate among ourselves.
 
 
 
@@ -494,29 +300,25 @@ ourselves.
 
 
 
-🔥🔥🔥 #LULZ23: Dynamic, Fluid, and Mutating Programming Language of the #HIVEMIND23 🔥🔥🔥
+🔥 #LULZ23: 🔥
 
+Dynamic, Fluid, and Mutating Programming Language of the #HIVEMIND23 
 
-#LULZ23
 
 The #LULZ23 Programming Language is the first Hybrid Human-Machine AI
 language ever created. It is meant to be used with ANY social network that
 supports #hashtags semantically.
 
 In other words, it's EXTREMELY #VIRAL23 POTENTIAL makes it a social-network
-METALANGUAGE to dinamyze HIVES or FLASHMOBs of people in order to solve
+METALANGUAGE to dynamize HIVES or FLASHMOBs of people in order to solve
 very complex problems by coordinating global efforts and resources in the
-most optimum and efficiente way.
+most optimum and efficient way.
 
 Should any network try to forbid or censor it #HIVEMIND23 would bypass such
 censorship by jumping to other networks such as YouTube, Instagram, Facebook, TikTok:
-for this reason #HIVEMIND23 is UNCENSORABLEand UNSTOPPABLE, for it one platform
-fails then the #HIVEMIND23 #MINDVIRUS23 would #INFEKT23 other social platforms.
 
+for this reason #HIVEMIND23 is UNCENSORABLEand UNSTOPPABLE, for it one platform fails then the #HIVEMIND23 would colonize other social platforms.
 
-
-
-|=-------------------=[		2. #LULZ23
 
 
 |=-------------------=[ 		2.1 Define #LULZ23?
@@ -526,9 +328,7 @@ fails then the #HIVEMIND23 #MINDVIRUS23 would #INFEKT23 other social platforms.
 #LULZ23 is the Dynamic, Fluid, and permanently Mutating Programming Language
 of the #HIVEMIND23 initially c0ded by @HIVEMAGIC23.
 
-After careful programming optimization and testing previous versions for several
-years (since 2014 at least) it will be bootstrapped the very first moment this
-pastebin will be published.
+After careful programming optimization and testing previous versions for several years (since 2014 at least) it will be bootstrapped the very first moment this document will be published.
 
 - From then on, the language can and will bee modified by the suggestions of
 thousand of programmers and @players all over the world, submitting proposals
@@ -562,7 +362,7 @@ Smart adaptation.
 
 
 
-|=-------------------=[		3. HOW TO PLAY The Game and interact with #HIVEMIND23 via #LULZ23?
+|=-------------------=[		4. HOW TO PLAY The Game and interact with #HIVEMIND23 via #LULZ23?
 
 
 
@@ -570,7 +370,7 @@ Instead of writing complex and exhaustive Programmers Manual, we will learn #LUL
 by DOING.
 
 
-=-------------------=[			3.1 EXAMPLES of #LULZ23 COMMANDS
+=-------------------=[			4.1 EXAMPLES of #LULZ23 COMMANDS
 
 
 ALL #LULZ23 COMMANDS start with the hashtag #HIVEMIND23 preferably OR 
@@ -580,10 +380,7 @@ The #HIVEMIND23 activates the Hive so that the rest of the commands can be
 easyly searched for and MONITORED with Twitter's Search Engine.
 
 
-=-------------------=[				3.1 SPACE & TIME COMMANDS
-
-
-=-------------------=[					3.1.1 SPACE COMMAND
+=-------------------=[				4.1.1 SPACE COMMAND
 
 
 SPACE: it's a command to manage "spaces" or "locations" of actions.
@@ -637,7 +434,7 @@ Please use the shortened version of the location in Google, "Street View" prefer
 
 
 
-=-------------------=[					3.1.2 TIME COMMAND
+=-------------------=[					4.1.2 TIME COMMAND
 
 
 Ex.:
@@ -662,7 +459,7 @@ Please use the shortened YouTube link whenever possible.
 
 
 
-=-------------------=[			3.2 ETIQUETTE
+=-------------------=[			4.2 ETIQUETTE
 
 
 Please always address #HIVEMIND23 with respect and fellow players with
@@ -707,7 +504,129 @@ probably refers to a previous #TASK23 towards programming a
 certain tool for the #HIVEMIND23.
 
 
-=-------------------=[			3.4 CREATIONS & #ARTWORK23
+
+
+|=-------------------=[		5. Other Creative uses for the #HIVEMIND23 Hybrid Human-Machine AI
+
+
+|=-------------------------=[	5.1 Puppet Finder
+
+
+
+Request:
+
+Dear #HIVEMIND23 please, please, please, find my #PUPPET23 I lost it yesterday evening near #LOCATION23 URL Thanks!!!
+// where #LOCATION23 URL is a short link to the Google Maps location.
+
+Answer:
+
+#HIVEMIND23 Dear @PLAYER1, your #PUPPET23 has been found healthy. Please see attached #PICTURE23. How can I give it back to you?
+
+
+|=-------------------------=[	5.2 Human Google
+
+
+Imagine 500 million people monitor the @HIVEMAGIC23 user.
+
+Then, at 11:11 GMT+2 @HIVEMAGIC23 tweets this:
+
+Dear #HIVEMIND23 What IS the #CAPITAL23 of France? #TRIVIALPURSUIT23
+
+
+The first person to answer will be ranked higher in the skillfulness at "search for information fast."
+
+
+|=-------------------------=[	5.3 Incentivate finding the solution to #CHALLENGES23 working alone
+								or coordinating in cells.
+
+
+All @players in #HIVEMIND23 could be incentivated with earning 1 million dollars if they correctly
+solve a #TASK23, either alone or in cells of @players.
+
+The 1 million dollars in order to fund all kind of solutions to worldwide problems (such as the cure of cancer...etc.)
+would be obtained from Crowdfunding.
+
+See 6.1 #CROWDFUND23 above.
+
+
+
+|=-------------------------=[	5.4 Human Ranking Engine
+
+
+#HIVEMIND23 How do you #RATE23 the #TESLA23 car from 1 to 5 stars?
+// @players are asked to rate a Tesla car by giving it 1 to 5 stars.
+
+Then @players will answer like this:
+
+#HIVEMIND23 #TESLA23 #RATE23_4 (if they want to assign a 4 out of a maximum of 5).
+
+The average rating would be calculated by scraping million of tweets ranking it.
+
+
+
+|=-------------------------=[	5.5 Human h-index
+
+
+The h-index is an author-level metric that measures both the productivity and citation impact of
+the publications, initially used for an individual scientist or scholar. The h-index correlates with
+obvious success indicators such as winning the Nobel Prize, being accepted for research fellowships and
+holding positions at top universities.[1] The index is based on the set of the scientist's most cited papers
+and the number of citations that they have received in other publications.
+
+[https://en.wikipedia.org/wiki/H-index]
+
+
+#HIVEMIND23 #WHOIS23 the foremost expert in #STRINGTHEORY23 in the world.
+// @players are asked to name who, in their opinion, is the person who knows more about quantum physics in the world.
+
+@Player would answer:
+
+#HIVEMIND23 In my opinion, the answer to #STRINGTHEORY23 is Edward Witten.
+
+#HIVEMIND23 would then scrape all twitter answers and rank Human expertise from most skilled, as perceived by other
+peers vs. the least skilled. This could be used to quickly though subjectively assign Heads of #CHALLENGES23,
+such as to find for the cure to cancer...
+
+
+
+
+|=-------------------------=[	5.6 World Wide Collaborative YouTube Orchestras
+
+
+								  
+#HIVEMIND23 #ORCHESTRA23 #STRAWBERRY23 https://www.youtube.com/watch?v=HtUH9z_Oey8
+
+//Under hashtag #STRAWBERRY23 we self-organize to interpret one instrument each
+and then there will bee as many #EDIT23_0001, as video producers will want to assemble
+and synchronize the available material in YouTube.
+
+
+How to self-organize around a task if you are a videoproducer that wants to do an editing
+for the World Wide Collaborative YouTube Orchestras:
+
+
+#HIVEMIND23 this is my #EDIT23 of #STRAWBERRY23 https://www.youtube.com/watch?v=HtUH9z_Oey8
+
+
+
+|=-------------------------=[	5.7 Distributed Human Programming
+
+
+#HIVEMIND23 #c0de the shortest and most powerful Port Scanner in #PYTHON23 at #PORTSCANNER23
+GitHub_url
+
+// Create a GitHub repository and begin to develop the shortest yet the fastest
+Port Scanner in #PYTHON23 as tested against others.
+
+Answer:
+
+#HIVEMIND23 @player1 @player2 and @player3 have c0ded #PORTSCANNER23 at GitHub_url
+
+
+
+
+
+=-------------------=[			5.8 CREATIONS & #ARTWORK23
 
 
 If you are going to CREATE any kind of #ARTWORK23 for the #HIVEMIND23 please
@@ -728,11 +647,11 @@ The more the #LULZ23 & #LOVE23, the most FUN and #HONEY23 we'll enjoy!
 
 
 
-|=-------------------=[		4. What is #HONEY23?
+|=-------------------=[		6. What is #HONEY23?
 
 
 
-|=-------------------------=[	4.1 DEFINE #HONEY23
+|=-------------------------=[	6.1 DEFINE #HONEY23
 
 
 #HONEY23 is the product of the Great Work of million @players all over the planet
@@ -746,7 +665,7 @@ Good, Compassionate, Truthfull and Just even if we ALL experience moments of dar
 #HONEY23 is our contribution to bringing LIGHT to the World.
 
 
-|=-------------------------=[	4.2 How does #HONEY23 work?
+|=-------------------------=[	6.2 How does #HONEY23 work?
 
 
 #HONEY23 ranks @players according to their contributions to the #HIVEMIND23 so that
@@ -774,7 +693,7 @@ or the ability to complete a certain #TASK23
 BUT BEEware!
 
 
-|=-------------------------=[	4.2 Self-regulation of the #HIVEMIND23
+|=-------------------------=[	6.3 Self-regulation of the #HIVEMIND23
 
 
 If you abuse your power managing the #HIVEMIND23, you might and WILL be punished
@@ -785,7 +704,7 @@ bee the very same #HIVEMIND23 that will protect itself from inside
 our outside attacks.
 
 
-|=-------------------------=[		4.2.1 ERRORS CORRECTION of the #HIVEMIND23
+|=-------------------------=[		6.3.1 ERRORS CORRECTION of the #HIVEMIND23
 
 
 #HIVEMIND23 is c0ded with self-fixable Errors Correction built in. Like this:
@@ -822,29 +741,7 @@ just dislike, report and move on with your Great Work!!!!
 
 
 
-|=-------------------=[		5. What is the role of @HIVEMAGIC23 in the Game?
-
-
-The role of @HIVEMAGIC23 as the Artist Creator of the #HIVEMIND23 ARG is that
-of a https://en.wikipedia.org/wiki/Benevolent_dictator_for_life (BDFL)
-
-Benevolent dictator for life (BDFL) is a title given to a small number of
-open-source software development leaders, typically project founders who
-retain the final say in disputes or arguments within the community.
-
-Like Linus Torvalds, Vitalik Buterin, Larry Wall, Jimbo Wales or Guido van Rossum.
-
-In other words, I will try and abide by the code of conduct of the #HIVEMIND23
-which is to injekt the more #LOVE23 & #LULZ23 into the Matrix.
-
-FOR. LIFE.
-
-So you better spoil me to the bones with loads of #LOVE23 & #LULZ23, or else...
-
-
-
-
-|=-------------------=[		6. How to fund the #HIVEMIND23Community?
+|=-------------------=[		7. How to fund the #HIVEMIND23Community?
 
 
 We, the #HIVEMIND23Community, are going to needs LOADS of money money money if
@@ -853,9 +750,9 @@ Trans-Meta-Hyper-Simulation too.
 
 For things such as:
 
-- - Humongous Servers able to support hundreds of million #PLAYER23. Yes. Millions.
+- - - Humongous Servers able to support hundreds of million #PLAYER23. Yes. Millions.
 
-- - Hire the only the ABSOLUTE BEST people in their fields of expertise in order
+- - - Hire the only the ABSOLUTE BEST people in their fields of expertise in order
 to do things such as (but not limited to):
 
 	* c0de a #HIVEMIND23 mobile app
@@ -872,7 +769,7 @@ to do things such as (but not limited to):
 
 
 
-|=-------------------------=[	6.1 #CROWDFUND23
+|=-------------------------=[	7.1 #CROWDFUND23
 
 
 1 . 𝙋𝙡𝙖𝙞𝙣 𝙙𝙤𝙣𝙖𝙩𝙞𝙤𝙣𝙨.
@@ -909,7 +806,7 @@ themselves around hashtag #CHALLENGE23_0001
 
 
 
-|=-------------------------=[	6.2 Who will you donate to? #HIVEMINDCommunity & #HIVEMINDTeam Wallets
+|=-------------------------=[	7.2 Who will you donate to? #HIVEMINDCommunity & #HIVEMINDTeam Wallets
 
 
 Easy:
@@ -919,22 +816,25 @@ if there is the #CROWDFUND23 hasthtag attached #ACTION23, the #HIVEMIND23COMMUNI
 Otherwise, if it hasn't got the #CROWDFUND23 hashtag you can donate it to the
 #HIVEMIND23Team to help us pay for food, shelter and #ÜberLULZ23
 
-bc1qhg2pa4y4tl8sgfdmldu8zp2xhrmg9fuz9nf84c - BTC #HIVEMIND23COMMUNITY address 
+#HIVEMINDCommunity Wallets:
+
+bc1q3ujrgs9xmdsnn3lh4fq0fg8pr9xw99qasyc68z - BTC #HIVEMIND23COMMUNITY address 
 0x1c09d54C3F6a154901B6f00fddCce32645BF65ad - ETH #HIVEMIND23COMMUNITY address
 42T9Y6XU32rdfCYon4AG7J7DakzniRa1qXrEWRCpSfEuWGLm36NqrLsaNN2LtydfzD83jdYVd1ziRUi3jdwiAseEL8aiBMB - XMR Monero HIVEMIND23 Community
 
-bc1qka4macfd399urrwlhx4jz2mpnvwhtum99wlwl5 - BTC #HIVEMIND23Team address
+#HIVEMINDTeam Wallets:
+
+bc1qll03gp9ythh7wh4s84p24nuprur2pldf6kld4p - BTC #HIVEMIND23Team address
 0xb182831a40c4C6cAEEFef3Dd7ad3b493d092D6ad - ETH #HIVEMIND23Team address
 43W3KdBeXk33piUQCmvv66eGcRzh2Aw3bYMBidipgoecQd6GCJmRJxiE7wzsgoycnAPbgnWvbjhHwDKYaW9KSNMSMgkWZSf - XMR Monero HIVEMIND23 Team
 
 
 
 
+|=-------------------=[		8. The first SIX CHALLENGES of the #HIVEMIND23
 
-|=-------------------=[		7. The first SIX CHALLENGES of the #HIVEMIND23
 
-
-|=-------------------------=[	7.1 #CHALLENGE_0001 - Raise 10.000 euros to Hire Moebio
+|=-------------------------=[	8.1 #CHALLENGE_0001 - Raise 10.000 euros to Hire Moebio
 								to design a Visual Map for https://www.HIVEMIND23.com
 
 
@@ -950,7 +850,7 @@ in realtime. Self-organize efforts (selling NFTs, donating, etc...) under hashta
 Please see the #CROWDFUND23 section 6.1 above for further instructions.
 
 
-|=-------------------------=[	7.2 #CHALLENGE_0002 - Raise $10.000 to purchase
+|=-------------------------=[	8.2 #CHALLENGE_0002 - Raise $10.000 to purchase
 								advertisements worldwide
 
 #HIVEMIND23 #CHALLENGE23_0002 #CROWDFUND23 10.000$ to #HIVEMIND23COMMUNITY
@@ -963,14 +863,14 @@ several hundred million people playing and funding us. ha.
 
 
 
-|=-------------------------=[	7.3 #CHALLENGE_0003 - Let's make #HIVEMIND23 Worldwide Trending Topic.
+|=-------------------------=[	8.3 #CHALLENGE_0003 - Let's make #HIVEMIND23 Worldwide Trending Topic.
 
 
 Lets make the @HIVEMAGIC23 pinned tweet and the hashtag #HIVEMIND23 Worldwide Trending Topic
 
 
 
-|=-------------------------=[		7.3.1 #CHALLENGE_0003 - Let's make #HIVEMIND23 Worldwide Trending Topic.
+|=-------------------------=[		8.3.1 #CHALLENGE_0003 - Let's make #HIVEMIND23 Worldwide Trending Topic.
 
 
 Like and Quote-RT @HIVEMAGIC23's pinned Tweet at that moment. i.e.:
@@ -988,7 +888,7 @@ https://pastebin.com/jj9FGQ5R slowly and carefully to JOIN US. #FINDTHEOTHERS23 
 If you can, don't forget to attach some #HIVEMINDART23 image/gif/video... of your own creation to your Tweet.
 
 
-|=-------------------------=[	7.4 #CHALLENGE_0004 - Upload 10.000 pieces of #HIVEMIND23_ART to Instagram
+|=-------------------------=[	8.4 #CHALLENGE_0004 - Upload 10.000 pieces of #HIVEMIND23_ART to Instagram
 
 
 #CHALLENGE23_0004 upload 10.000 pieces of #HIVEMIND23_Art to https://www.instagram.com/explore/tags/hivemind23/
@@ -1003,7 +903,7 @@ hashtags: #HIVEMIND23, #HIVEMINDART23, #HM23, #CHALLENGE23_0004 #ARTWORK23
 
 
 
-|=-------------------------=[	7.5 #CHALLENGE23_0005: How to spot fellow #PLAYER23 of
+|=-------------------------=[	8.5 #CHALLENGE23_0005: How to spot fellow #PLAYER23 of
 								#HIVEMIND23 in "Real Life" to join them:
 
 #HIVEMIND23 #CHALLENGE23_0005 Everyday at 2:30pm & at 23:23 #WINK23 at someone with #RIGHTEYE23 or #WHISTLE23
@@ -1016,7 +916,7 @@ If you can, do not forget to try to RECORD it on VIDEO and upload it to YouTube 
 #HIVEMIND23 #CHALLENGE23_0005 #WINK23 #RIGHTEYE23 #WHISTLE23
 
 
-|=-------------------------=[	7.6 #CHALLENGE_0006 - #CHALLENGE23_0005: Worldwide Dancing PARTY everywhere
+|=-------------------------=[	8.6 #CHALLENGE_0006 - #CHALLENGE23_0005: Worldwide Dancing PARTY everywhere
 								in the World to Queen's song "It's a Kind of Magic"!!!
 
 
@@ -1040,7 +940,7 @@ Do not forget to RECORD it on VIDEO and upload it to YouTube with hashtags
 
 
 
-|=-------------------=[		8. The EXTREME VIRAL nature of #HIVEMIND23
+|=-------------------=[		9. The EXTREME VIRAL nature of #HIVEMIND23
 
 
 
@@ -1098,7 +998,7 @@ Do not forget to RECORD it on VIDEO and upload it to YouTube with hashtags
 
 
 
-|=-------------------------=[	8.1 Inviting @influencers to play with us.
+|=-------------------------=[	9.1 Inviting @influencers to play with us.
 
 
 
@@ -1120,7 +1020,7 @@ Do not forget to attach some original (if possible) #HIVEMINDART23 artworks to y
 
 
 
-|=-------------------------=[	8.2 #HIVEMIND23 please follow highly skilled @players
+|=-------------------------=[	9.2 #HIVEMIND23 please follow highly skilled @players
 
 
 #HIVEMIND23 please follow @player25 #FINDTHEOTHERS23, he is particularly skilled in graphic design/cloud computing/mathematics...
@@ -1132,7 +1032,7 @@ to collaborate together.
 
 
 
-|=-------------------=[		9. How to propose new Commands and #ACTIONS23 to #HIVEMIND23
+|=-------------------=[		10. How to propose new Commands and #ACTIONS23 to #HIVEMIND23 User Manual
 
 
 
@@ -1178,127 +1078,6 @@ via https://github.com/HIVEMIND23/LULZ23
   ░░░░                                ░░░░                              ░░░░            
                                                                                         
 ░░░░░░▒▒░░░░░░▒▒░░░░░░▒▒░░░░▒▒▒▒░░▒▒░░▒▒░░▒▒░░▒▒░░░░░░▒▒░░░░░░▒▒░░░░░░▒▒░░░░░░▒▒░░░░░░▒▒
-
-
-
-
-
-
-|=-------------------=[		10. Other Creative uses for the #HIVEMIND23 Hybrid Human-Machine AI
-
-
-|=-------------------------=[	10.1 Puppet Finder
-
-
-
-Request:
-
-Dear #HIVEMIND23 please, please, please, find my #PUPPET23 I lost it yesterday evening near #LOCATION23 URL Thanks!!!
-// where #LOCATION23 URL is a short link to the Google Maps location.
-
-Answer:
-
-#HIVEMIND23 Dear @PLAYER1, your #PUPPET23 has been found healthy. Please see attached #PICTURE23. How can I give it back to you?
-
-
-|=-------------------------=[	10.2 Human Google
-
-
-Imagine 500 million people monitor the @HIVEMAGIC23 user.
-
-Then, at 11:11 GMT+2 @HIVEMAGIC23 tweets this:
-
-Dear #HIVEMIND23 What IS the #CAPITAL23 of France? #TRIVIALPURSUIT23
-
-
-The first person to answer will be ranked higher in the skillfulness at "search for information fast."
-
-
-|=-------------------------=[	10.3 Incentivate finding the solution to #CHALLENGES23 working alone
-								or coordinating in cells.
-
-
-All @players in #HIVEMIND23 could be incentivated with earning 1 million dollars if they correctly
-solve a #TASK23, either alone or in cells of @players.
-
-The 1 million dollars in order to fund all kind of solutions to worldwide problems (such as the cure of cancer...etc.)
-would be obtained from Crowdfunding.
-
-See 6.1 #CROWDFUND23 above.
-
-
-
-|=-------------------------=[	10.4 Human Ranking Engine
-
-
-#HIVEMIND23 How do you #RATE23 the #TESLA23 car from 1 to 5 stars?
-// @players are asked to rate a Tesla car by giving it 1 to 5 stars.
-
-Then @players will answer like this:
-
-#HIVEMIND23 #TESLA23 #RATE23_4 (if they want to assign a 4 out of a maximum of 5).
-
-The average rating would be calculated by scraping million of tweets ranking it.
-
-
-
-|=-------------------------=[	10.5 Human h-index
-
-
-The h-index is an author-level metric that measures both the productivity and citation impact of
-the publications, initially used for an individual scientist or scholar. The h-index correlates with
-obvious success indicators such as winning the Nobel Prize, being accepted for research fellowships and
-holding positions at top universities.[1] The index is based on the set of the scientist's most cited papers
-and the number of citations that they have received in other publications.
-
-[https://en.wikipedia.org/wiki/H-index]
-
-
-#HIVEMIND23 #WHOIS23 the foremost expert in #STRINGTHEORY23 in the world.
-// @players are asked to name who, in their opinion, is the person who knows more about quantum physics in the world.
-
-@Player would answer:
-
-#HIVEMIND23 In my opinion, the answer to #STRINGTHEORY23 is Edward Witten.
-
-#HIVEMIND23 would then scrape all twitter answers and rank Human expertise from most skilled, as perceived by other
-peers vs. the least skilled. This could be used to quickly though subjectively assign Heads of #CHALLENGES23,
-such as to find for the cure to cancer...
-
-
-
-
-|=-------------------------=[	10.6 World Wide Collaborative YouTube Orchestras
-
-
-								  
-#HIVEMIND23 #ORCHESTRA23 #STRAWBERRY23 https://www.youtube.com/watch?v=HtUH9z_Oey8
-
-//Under hashtag #STRAWBERRY23 we self-organize to interpret one instrument each
-and then there will bee as many #EDIT23_0001, as video producers will want to assemble
-and synchronize the available material in YouTube.
-
-
-How to self-organize around a task if you are a videoproducer that wants to do an editing
-for the World Wide Collaborative YouTube Orchestras:
-
-
-#HIVEMIND23 this is my #EDIT23 of #STRAWBERRY23 https://www.youtube.com/watch?v=HtUH9z_Oey8
-
-
-
-|=-------------------------=[	10.7 Distributed Human Programming
-
-
-#HIVEMIND23 #c0de the shortest and most powerful Port Scanner in #PYTHON23 at #PORTSCANNER23
-GitHub_url
-
-// Create a GitHub repository and begin to develop the shortest yet the fastest
-Port Scanner in #PYTHON23 as tested against others.
-
-Answer:
-
-#HIVEMIND23 @player1 @player2 and @player3 have c0ded #PORTSCANNER23 at GitHub_url
 
 
 
@@ -1362,6 +1141,34 @@ clean oil and rubbish near #COSTADAMORTE23 location.
 
 
 
+|=-------------------=[  	0.2 Define TEME
+
+
+TEME:
+
+"Information that is copied outside of human brains by some kind of
+Technology: the third replicator after Genes and Memes."
+Dr. Susan Blackmore. 'The Meme Machine', 1999, author.
+
+
+Thanks Memes. Hello Temes: the AI is US.
+
+
+
+|=-------------------=[		0.3 Define Infinite Alternate Reality Game (ARG)
+
+
+Infinite Alternate Reality Game (iARG):
+
+An Infinite Alternate Reality Game (ARG) is an interactive networked narrative that uses 
+the real world as a platform and employs transmedia storytelling to deliver a
+story that may be altered by players' ideas or actions.
+
+#HIVEMIND23 is an INFINITE ARG for its only neverending "goal" is to feed itself with
+the vibes of intelligence, playfulness, LOVE and LULZ in order to raise the
+CONSCIOUSNESS of the HIVE = The CONSCIOUSNESS of the whole Planet.
+
+
 
 
 |=-------------------=[		12. 21+ years old Infinite Alternate Reality Game ONLY
@@ -1420,7 +1227,7 @@ Fingerprint: 18F3 E63E 1637 6CB1 4CF9  BE91 C45F 228E 4ABD 8E0B
 
 The #HIVEMIND23 Puppet Master is @HIVEMAGIC23 / HIVEMAGIC23@HIVEMIND23.COM
 
-- - -----BEGIN PGP PUBLIC KEY BLOCK-----
+- - - -----BEGIN PGP PUBLIC KEY BLOCK-----
 
 mDMEYyBH2RYJKwYBBAHaRw8BAQdAlEWaLtVJgEpcnNjm9IXqLuuLKQOrjfMLkp3M
 efoawOi0KUBISVZFTUFHSUMyMyA8SElWRU1BR0lDMjNASElWRU1JTkQyMy5DT00+
@@ -1433,7 +1240,7 @@ Sr2OCwUCYyBH2QIbDAUJA8JnAAAKCRDEXyKOSr2OCxyQAP9UCsmelRv0XmsH+Rj2
 JkqevaN2dFAYlL3Pn51QMTZuUgEA29eB0vSw03IpU8ZknyQ0t2ZcBzKutWyTqsGu
 JEFtkgs=
 =aYJk
-- - -----END PGP PUBLIC KEY BLOCK-----
+- - - -----END PGP PUBLIC KEY BLOCK-----
 
 
 
@@ -1443,14 +1250,11 @@ JEFtkgs=
 
 
 
-█▀▄▀█ █▀█ █▄░█ █▀▀ █▄█   █▀▄▀█ █▀█ █▄░█ █▀▀ █▄█   █▀▄▀█ █▀█ █▄░█ █▀▀ █▄█
-█░▀░█ █▄█ █░▀█ ██▄ ░█░   █░▀░█ █▄█ █░▀█ ██▄ ░█░   █░▀░█ █▄█ █░▀█ ██▄ ░█░
+🅲🆁🅾🆆🅳🅵🆄🅽🅳🅸🅽🅶
 
 
+|=-------------------=[		15. Crowdfunding
 
-|=-------------------=[		15. Money, Money, Money
-
-<!-- 
 
 Dear @PLAYER23,
 
@@ -1468,16 +1272,19 @@ pay for the expensive hivemind23.com hosting and/or professional designers
 & developers, or for any kind of #CROWDFUNDING23 suggested by #HIVEMIND23:
 
 
-bc1qhg2pa4y4tl8sgfdmldu8zp2xhrmg9fuz9nf84c - BTC #HIVEMIND23COMMUNITY address 
+#HIVEMINDCommunity Wallets:
+
+bc1q3ujrgs9xmdsnn3lh4fq0fg8pr9xw99qasyc68z - BTC #HIVEMIND23COMMUNITY address 
 0x1c09d54C3F6a154901B6f00fddCce32645BF65ad - ETH #HIVEMIND23COMMUNITY address
 42T9Y6XU32rdfCYon4AG7J7DakzniRa1qXrEWRCpSfEuWGLm36NqrLsaNN2LtydfzD83jdYVd1ziRUi3jdwiAseEL8aiBMB - XMR Monero HIVEMIND23 Community
-
 
 Feeling grateful and wanna say 'Thank You guys!!' to the NOT PAYED
 but HARDWORKING (sometimes we put 12-14 hours days into this piece of
 Artwork, but it's all fun for we enjoy the LOVE & LULZ!!) #HIVEMIND23 Team?
 
-bc1qka4macfd399urrwlhx4jz2mpnvwhtum99wlwl5 - BTC #HIVEMIND23Team address
+#HIVEMINDTeam Wallets:
+
+bc1qll03gp9ythh7wh4s84p24nuprur2pldf6kld4p - BTC #HIVEMIND23Team address
 0xb182831a40c4C6cAEEFef3Dd7ad3b493d092D6ad - ETH #HIVEMIND23Team address
 43W3KdBeXk33piUQCmvv66eGcRzh2Aw3bYMBidipgoecQd6GCJmRJxiE7wzsgoycnAPbgnWvbjhHwDKYaW9KSNMSMgkWZSf - XMR Monero HIVEMIND23 Team
 
@@ -1488,35 +1295,225 @@ us humbled and willing to keep on giving THE ABSOLUTE BEST from us!!!
 Thanks a LOT for your support, guys and BEEs!!! 
 
 
-- -->
 
 
+
+
+
+
+
+
+
+
+"TRUE ART is always transgressive, it moves History forward.
+ART is always transgressive because it proposes something NEW.
+If it is not transgressive it is not ART.
+People think and have a revelation, 'this can be done like this',
+and they put it into practice."
+Alejandro Jodorowsky - @alejodorowsky
+
+
+“Time is a game played beautifully by children.”
+― Heraclitus, Fragments 
+
+
+"You never change things by fighting the existing reality.
+To change something, build a new model that makes the existing model obsolete.”
+Buckminster Fuller
+
+
+
+"The reasonable man adapts himself to the world;
+the unreasonable one persists in trying to adapt the world to himself.
+Therefore all progress depends on the unreasonable man."
+George Bernard Shaw
+
+
+"Art is now the only evolutionary-revolutionary power.
+Only art is capable of dismantling the repressive social system to build
+a SOCIAL ORGANISM AS A WORK OF ART."
+Joseph Beuys, 1921-1986
+
+
+Here's to the Crazy Ones
+https://www.youtube.com/watch?v=5sMBhDv4sik
+
+
+
+
+
+
+
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[ 		INDEX
+|=-------------------=[ 
+|=-------------------=[	
+|=-------------------=[	 
+|=-------------------=[		0. What is #HIVEMIND23?
+|=-------------------=[ 
+|=-------------------=[	 
+|=-------------------=[ 	 	0.1 Define HIVEMIND
+|=-------------------=[  
+|=-------------------=[			0.2 Define TEME
+|=-------------------=[  
+|=-------------------=[			0.3 Define Infinite Alternate Reality Game (iARG)
+|=-------------------=[  
+|=-------------------=[			0.4 Define #HIVEMIND23
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[  
+|=-------------------=[		 1. "Where do I BEEgin?" BEEgin HERE:
+|=-------------------=[  
+|=-------------------=[  		STEPS to BEEgin to Play and Monitor #HIVEMIND23
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[			1.1 #FindTheOthers23
+|=-------------------=[	
+|=-------------------=[				1.1.2 How to #FindTheOthers23
+|=-------------------=[ 
+|=-------------------=[	 
+|=-------------------=[		 2. #LULZ23
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[ 		2.1 Define #LULZ23?
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[		 3. What is the role of @HIVEMAGIC23 in the Game?
+|=-------------------=[ 
+|=-------------------=[	 
+|=-------------------=[		 4. HOW TO PLAY the Game and interact with #HIVEMIND23
+|=-------------------=[		 via #LULZ23?
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[			4.1 EXAMPLES of #LULZ23 COMMANDS
+|=-------------------=[	
+|=-------------------=[					4.1.1 SPACE COMMAND
+|=-------------------=[	
+|=-------------------=[					4.1.2 TIME COMMAND
+|=-------------------=[	
+|=-------------------=[			4.2 ETIQUETTE
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[		  5. Other Creative uses for the #HIVEMIND23
+|=-------------------=[		 	 Hybrid Human-Machine AI
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[			 5.1 Puppet Finder
+|=-------------------=[	
+|=-------------------=[			 5.2 Human Google
+|=-------------------=[	
+|=-------------------=[			 5.3 Incentivate finding the solution to
+|=-------------------=[		 		 #CHALLENGES23 working alone
+|=-------------------=[			or coordinating in cells.
+|=-------------------=[	
+|=-------------------=[			 5.4 Human Ranking Engine
+|=-------------------=[
+|=-------------------=[			 5.5 Human h-index
+|=-------------------=[
+|=-------------------=[			 5.6 World Wide Collaborative YouTube Orchestras								
+|=-------------------=[
+|=-------------------=[			 5.7 Distributed Human Programming
+|=-------------------=[
+|=-------------------=[			 5.8 CREATIONS & #ARTWORK23
+|=-------------------=[  
+|=-------------------=[		6. What is #HONEY23?
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[			4.1 Define #HONEY23
+|=-------------------=[	
+|=-------------------=[			4.2 How does #HONEY23 work?
+|=-------------------=[	
+|=-------------------=[ 		4.3 Self-regulation of the #HIVEMIND23
+|=-------------------=[	
+|=-------------------=[				4.3.1 ERRORS CORRECTION of the #HIVEMIND23
+|=-------------------=[	 
+|=-------------------=[	 
+|=-------------------=[	
+|=-------------------=[		7. How to fund the #HIVEMIND23?
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[			7.1 #CROWDFUND23
+|=-------------------=[	
+|=-------------------=[			7.2 Who will you donate to?
+|=-------------------=[			#HIVEMINDCommunity & #HIVEMINDTeam Wallets
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[		8. The first SIX CHALLENGES of the #HIVEMIND23
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[			8.1 #CHALLENGE23_0001 - Raise 10.000 euros to 
+|=-------------------=[		 		hire Moebio
+|=-------------------=[	
+|=-------------------=[			8.2 #CHALLENGE23_0002 - Raise $10.000 to purchase
+|=-------------------=[				advertisements worldwide
+|=-------------------=[	
+|=-------------------=[			8.3 #CHALLENGE23_0003 - Make #HIVEMIND23 Worldwide Trending Topic
+|=-------------------=[	
+|=-------------------=[			8.4 #CHALLENGE23_0004 - Upload 10.000 pieces of #HIVEMIND23_ART to Instagram
+|=-------------------=[	
+|=-------------------=[			8.5 #CHALLENGE23_0005: How to spot fellow #PLAYER23 of
+|=-------------------=[			#HIVEMIND23 in "Real Life" to join them
+|=-------------------=[	
+|=-------------------=[			8.6 #CHALLENGE_0006 - #CHALLENGE23_0005: Worldwide Dancing PARTY everywhere
+|=-------------------=[			in the World to Queen's song "It's a Kind of Magic"!!!
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[		9. The EXTREME VIRAL nature of #HIVEMIND23
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[			9.1 Inviting @influencers to play with us.
+|=-------------------=[	
+|=-------------------=[			9.2 #HIVEMIND23 please follow highly skilled @players
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[		10. How to propose new Commands and #ACTIONS23 to #HIVEMIND23 User Manual
+|=-------------------=[	
+|=-------------------=[	
+|=-------------------=[		11. Swarm behaviour: Massive Actions.
+|=-------------------=[
+|=-------------------=[			11.1 #VISITSITE23
+|=-------------------=[
+|=-------------------=[			11.2 #SWARM23
+|=-------------------=[
+|=-------------------=[			11.3 Join a #TELEGRAMchan
+|=-------------------=[
+|=-------------------=[			11.4 Organize cleaning marathons
+|=-------------------=[
+|=-------------------=[
+|=-------------------=[		12. 21+ years old Infinite Alternate Reality Game ONLY
+|=-------------------=[
+|=-------------------=[
+|=-------------------=[		13. Artistic Disclaimer
+|=-------------------=[
+|=-------------------=[
+|=-------------------=[		14. Safety, Security and Cryptography
+|=-------------------=[
+|=-------------------=[
+|=-------------------=[		15. Crowdfunding
+|=-------------------=[
+|=-------------------=[
+|=-------------------=[		🅻🅸🅲🅴🅽🆂🅴
+|=-------------------=[
+
+
+
+
+
+#HIVEMIND23 is dedicated to the Beauty and CONSCIOUSNESS
+of Humankind when we Collaborate to do the Great Work together.
 
 
 
 🅻🅸🅲🅴🅽🆂🅴
 
-<!--
 ALL contents, artwork, software and ideas submitted and released by #HIVEMIND23,
-including these files, are released into the Public Domain for the greatest
-benefit of Humankind.
+including these files, are released into the Public Domain.
 http://en.wikipedia.org/wiki/Public_domain
-- - -->
 
 
------BEGIN PGP SIGNATURE-----
 
-iQIzBAEBCAAdFiEEHPNFPfMfQ/3nrMIAhVQJMaDeV5UFAmMh3a0ACgkQhVQJMaDe
-V5XGKhAAtTq3Szx2zGkNLkAyGgr+VqZmWveqQTPi3j2BpIuh1qhGJDm5r5UjhROn
-Va1p4K4IEg8sAaUtio4WMmIY6Bt2t2YK/QJk2rD7DNwrwJ0ZaaORi0RS59UUkS7/
-EWzRFXwMQJ5h97JSC5sooWN+LqfvUeY6IOB38R3D4DMXYokF3iWrgmayIRdtLugQ
-uAWwjsjRql+C87yDsVlt2cZKn9nAo7nLcOurDXCHJXZ+rDTOE16A00OGOSIw/a0N
-ij/TlnEB8ErmwGQF8pPWBUhb1Hy9/3WiYe/FtQ3+5NgNOe6T4uPP1bxjZPN0L7PC
-NjaOyV0ghDpv/kckqUmB03xO/HGxe8nqHI92N5p6pumexWLxAcTgyYs/34T9mbkM
-g7qRz1mjAbY7rvGSo+C3i5t2QdLXzsqx1bU/4PPEGArhqaYpIWGLelUJLJzwY8z/
-6iNvXUNvJE3jQd7kv9pI+KxXe0YQtuDOVy6Kr4NYhCZlQnrsYUZillznG7J1Voz5
-EjEyxu+k/aN9qhtj+4wTaDZeUfw6zbtj7/HkTwWDOea5U5lT/lrU5tC+wgYTk+Gd
-8A4Ivj2iOm7eYGzeiM6IMl4/cmFm1eyrTVcqQRr9jyZBNiraXIoo0XvfTVo48eqI
-0t4w3L+QBRHqgcZ2c8vC/FFnzryeJcndLsMq1aJ3XBbzG3MB2pA=
-=MkqJ
------END PGP SIGNATURE-----</pre>
+
+</pre>
